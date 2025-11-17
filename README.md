@@ -1,4 +1,4 @@
-# skola
+# Škola
 
 repozitorij za isprovanje skolskih stvari
 
