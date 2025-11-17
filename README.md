@@ -1,25 +1,24 @@
 # Škola
 
 repozitorij za isprovanje skolskih stvari
-
-ovdje ce biti conflicti
-
+asdqwe
+ovasdasddje ce biti conflicti
+qweqw
 kjaskdjaskdjapsokš
-
+qweqweq
 bđž
-
+qdasdas
 sdkofsdjfžds
-
+asdsadqweqw
 ob
-
+qweqwe
 dfžojgžfsd
-
+asdasd
 agokfdžgjad
-
+qweqweqasd
 godf
-
-g
-
-a
-dsasdasdasdasda
+qweqweq
+gasdasd
+asdasdqw
+asdasdasd
 
